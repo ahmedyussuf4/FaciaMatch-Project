@@ -2,8 +2,6 @@
 
 Transforming the salon experience through advanced tech and personalized care! ✨
 
-🔗 **Website:** [www.faciamatch.com](https://www.faciamatch.com)[cite: 7]
-
 ## 🌟 What is FaciaMatch?
 Step into the future of hair care. When you arrive at the salon, our cutting-edge **full-head scanning machine** instantly analyzes your unique hair and scalp[cite: 3]. 
 
